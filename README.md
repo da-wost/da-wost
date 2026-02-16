@@ -12,13 +12,11 @@ ohhh yeahhhhhhhhhhhhhhh i liiiiiiike i like i like toooo i like to
 ohhh yeahhhhhhhhhhhhhhh i liiiiiiike i like i like toooo i like to 
 ohhh yeahhhhhhhhhhhhhhh i liiiiiiike i like i like toooo i like to  ohhh yeahhhhhhhhhhhhhhh i liiiiiiike i like i like toooo i like to ohhh yeahhhhhhhhhhhhhhh i liiiiiiike i like i like toooo i like to ohhh yeahhhhhhhhhhhhhhh i liiiiiiike i like i like toooo i like to 
 
-i have lots and lots of friends and every single one of them i would sell for a nickel except maybe td and finn and pilate
+i have lots and lots of friends and every single one of them i would sell for a nickel except maybe td and pilate
 for reference these are td finn and pilate
 
 td
 <img width="190" height="136" alt="image" src="https://github.com/user-attachments/assets/c536a153-9192-4756-9ef5-12e08b6fc873" />
-finn
-<img width="113" height="139" alt="image" src="https://github.com/user-attachments/assets/cf847f0b-1fd4-43f3-8721-fd65ebb380e3" />
 and the pilate
 <img width="142" height="120" alt="image" src="https://github.com/user-attachments/assets/59f4a6c5-62e6-4e2b-b7f6-0d21f5a2dd7d" />
 i didnt have any pictures of pilate so i drew him from memory ok
