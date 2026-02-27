@@ -25,7 +25,7 @@ i didnt have any pictures of pilate so i drew him from memory ok
 
 thank you friend me i like having friends lots of them
 
-𝕴𝖓 𝖒𝖊𝖒𝖔𝖗𝖞 𝖔𝖋; [ 𝕱𝖎𝖓𝖓. 2009 - 2026 . . . ] 𝕽𝖊𝖘𝖙 𝕴𝖓 𝕻𝖊𝖆𝖈𝖊
+-------------------------------------------- 𝕴𝖓 𝖒𝖊𝖒𝖔𝖗𝖞 𝖔𝖋; [ 𝕱𝖎𝖓𝖓. 2009 - 2026 . . . ] 𝕽𝖊𝖘𝖙 𝕴𝖓 𝕻𝖊𝖆𝖈𝖊 -----------------------------------------------
 
 <img width="136" height="146" alt="Screenshot 2025-08-21 041124" src="https://github.com/user-attachments/assets/69c0bea8-2de5-42f2-a78c-5376efe06354" />
 <img width="364" height="206" alt="Screenshot 2025-09-05 124405" src="https://github.com/user-attachments/assets/19529113-ccfd-4931-acdc-d631d13e06b1" />
