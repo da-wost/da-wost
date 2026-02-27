@@ -35,4 +35,4 @@ thank you friend me i like having friends lots of them
 <img width="189" height="185" alt="image" src="https://github.com/user-attachments/assets/3e42a610-f63b-4465-b752-0e5511e358ea" />
 <img width="259" height="222" alt="Screenshot 2026-01-23 233234" src="https://github.com/user-attachments/assets/2ff5ef4a-d1bd-4420-97de-04b2a21c91a2" />
 <img width="165" height="200" alt="image" src="https://github.com/user-attachments/assets/7c630cc1-c5a4-4a59-a445-df0a1758e02f" />
-
+he didnt die or anything i just want a place to put my pictures of this chud
