@@ -1,6 +1,6 @@
 # im wost hi
 
-## dont ask to c+h just go for it
+### dont ask to c+h just go for it
 
 hi my name is ummmmmmmmmmmmmmmmmmm my name is wost and that is my name i am awesome and there is nobody that could try to be cooler than me
 i like video games and i like video and i like games and i like it when you follow my github
