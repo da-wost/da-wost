@@ -2,7 +2,9 @@
 
 ### dont ask to c+h just go for it
 
-hi my name is ummmmmmmmmmmmmmmmmmm my name is wost and that is my name i am awesome and there is nobody that could try to be cooler than me
+
+
+hi my name is ummmmmmmmmmmmmmmmmmm my name is wost and that is my name i am awesome and i like girls and there is nobody that could try to be cooler than me
 i like video games and i like video and i like games and i like it when you follow my github
 umm.. YEAH. im NOT sorry if i was rude to you, becuz im 2 rude...
 ohhh yeahhhhhhhhhhhhhhh i liiiiiiike i like i like toooo i like to 
